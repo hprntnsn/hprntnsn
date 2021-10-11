@@ -1,0 +1,3 @@
+- @hprntnsn
+- professional nerd, amateur programmer
+- crypto and culture
